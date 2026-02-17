@@ -1,1 +1,3 @@
-   ![gif](https://github.com/UwUslee/UwUslee/blob/main/lucky-star-yawn_50.gif?raw=true)
+<div align="center">
+   <img src="https://count.getloli.com/get/@:tr1rd?theme=gelbooru&scale=0.7"><br>
+</div>
